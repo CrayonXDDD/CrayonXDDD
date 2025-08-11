@@ -8,7 +8,6 @@ Usually at the roblox area with my friend, INT unless if me or my friends have `
 I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest333) ♡<br/>Matching with the <a href="https://github.com/kawaiirazorblades" target="_blank">pookie</a> ever ^_^^<br/>
 · · ─────── ·✦· ─────── · ·
 
-Best viewed on computer but still readable on mobile ig
 
 <img align="center" width="60%" src="https://64.media.tumblr.com/70f032b833cc065c942e6d9a40d32a64/6f1e5bdf78d09eae-fd/s540x810/ab37365a728cd51c31479c24f4a898f802ed0bac.gifv">
 
