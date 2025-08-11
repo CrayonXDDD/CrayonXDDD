@@ -37,7 +37,7 @@ Please don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I can be
 
 <details>
 <summary>Interests ! ⏣ </summary>
-Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osomatsu-san, portal 1 and 2, amphibia, lego monkie kid, madoka magica, musicals, heathers´s, friday the 13th, scream, death note, osc, death note, UTAU, inside job, mcyt, markiplier, 80´s songs, mbp, psychology, moths, guitars, my OC´s.
+Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osomatsu-san, portal 1 and 2, amphibia, lego monkie kid, madoka magica, musicals, heathers´s, friday the 13th, scream, death note, osc, UTAU, inside job, mcyt, markiplier, 80´s songs, mpb, psychology, moths, guitars, my OC´s.
 </details>
 
 <details>
