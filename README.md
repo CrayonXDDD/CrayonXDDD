@@ -1,7 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Libertinus+Serif&size=30&duration=4000&pause=1000&color=E1B333&center=false&vCenter=false&width=435&lines=Come+from+way+above;To+bring+me+love++%E2%81%A0%E2%99%A1)](https://git.io/typing-svg)
  <img align="left" width="40%" src="https://64.media.tumblr.com/cd327c28dcf70e4a2e3cc6ce52dc956e/6f43c62ae0a5e7ad-09/s540x810/38fca3a9352b660568a7f26f3e8bfbc2e71ff1e8.pnj">
 
-Hiii! My name is Crayon and I use any pronouns <3
+Hiii! My name is Crayon and I use any pronouns <3<br/>best viewed on computer but still readable on mobile ig
 
 Usually at the roblox area with my friend, INT unless if me or my friends have ``DNI``` on our names, or are openly overwhelmed.  Shipps DNI !
 
