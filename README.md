@@ -70,6 +70,6 @@ f̲o̲r̲s̲a̲k̲e̲n̲ / roblox in general, I̲n̲v̲a̲d̲e̲r̲ Z̲i̲m̲, 8
 
 # Thank you for reading, Ciao ~
 
-<img align="center" width="30%" src="https://github.com/CrayonXDDD/Craycrayz/blob/main/meEFCeVs0wgZ1KwO8C5kI-1.webp">
+<img align="center" width="30%" src="https://github.com/CrayonXDDD/CrayonXDDD/blob/main/meEFCeVs0wgZ1KwO8C5kI-1.webp">
 
 
