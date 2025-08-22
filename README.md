@@ -75,4 +75,8 @@ Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osoma
 <img align="center" width="30%" src="https://github.com/CrayonXDDD/CrayonXDDD/blob/main/meEFCeVs0wgZ1KwO8C5kI-1.webp">
 
 
+<p align="center">
+ 
 ![](https://komarev.com/ghpvc/?username=CrayonXDDD&abbreviated=true&color=orange&style=plastic&label=Pwns!!)
+
+</p>
