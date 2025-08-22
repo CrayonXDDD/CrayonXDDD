@@ -67,17 +67,14 @@ Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osoma
 <img align="left" width="4%" src="https://64.media.tumblr.com/e84d916434fdab8cb82e60ad420d9127/6f1e5bdf78d09eae-4c/s75x75_c1/2ad674a6ce7dcc2742f1b7f9f3404c59be0c0b85.gifv">
  
  **<a href="https://toneindicators.carrd.co/#" target="_blank">Tone indicators</a>. A masterlist of tone indicators you can use !!**<br/>
+<br/>
 
-
+<div align="center">
 
 # Thank you for reading, Ciao ~
 
-<img align="center" width="30%" src="https://github.com/CrayonXDDD/CrayonXDDD/blob/main/meEFCeVs0wgZ1KwO8C5kI-1.webp">
-
-
-
-
-<div align="left">
+<img align="center" width="30%" src="https://github.com/CrayonXDDD/CrayonXDDD/blob/main/meEFCeVs0wgZ1KwO8C5kI-1.webp"> <br/>
+<div align="center">
  
 <img width="115" src="https://komarev.com/ghpvc/?username=CrayonXDDD&abbreviated=true&color=orange&style=plastic&label=Pwns!!">
 
