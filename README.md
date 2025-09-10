@@ -5,7 +5,7 @@ Hiii! My name is Crayon and I use any pronouns <3
 
 Usually at the roblox area with my friend, INT unless if me or my friends have ``DNI``` on our names, or are openly overwhelmed.  Shipps DNI !
 
-I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest333) ♡<br/>Matching with the <a href="https://github.com/kawaiirazorblades" target="_blank">pookie</a> ever ^_^^<br/>
+I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest333) ♡<br/>The awesomest <a href="https://github.com/kawaiirazorblades" target="_blank">pookie</a> ever ^_^^<br/>
 · · ─────── ·✦· ─────── · ·
 
 ~ <ins>Best viewed on computer but still readable on mobile ig</ins>
@@ -66,7 +66,7 @@ Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osoma
 
 <img align="left" width="4%" src="https://64.media.tumblr.com/e84d916434fdab8cb82e60ad420d9127/6f1e5bdf78d09eae-4c/s75x75_c1/2ad674a6ce7dcc2742f1b7f9f3404c59be0c0b85.gifv">
  
- **<a href="https://toneindicators.carrd.co/#" target="_blank">Tone indicators</a>. A masterlist of tone indicators you can use !!**<br/>
+ **<a href="https://toneindicators.carrd.co/#" target="_blank">Commissions page</a>. Please commission me !!** </br>
 <br/>
 
 <div align="center">
