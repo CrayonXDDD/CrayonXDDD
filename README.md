@@ -52,7 +52,7 @@ Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osoma
 
 <img align="left" width="5%" src="https://64.media.tumblr.com/df4f22f397f20f7b8388e9c74a963301/6f1e5bdf78d09eae-97/s75x75_c1/f4f4e2ad1df0a064f8d5d01d2ff4418d4df76cfb.gifv">
  
- **<a href="https://crayonxddd.straw.page" target="_blank">My strawpage</a>. Send me gimmicks !**
+ **<a href="https://craycrayon.straw.page" target="_blank">My strawpage</a>. Send me gimmicks !**
 
 <img align="left" width="6%" src="https://64.media.tumblr.com/474d6cbbb8e0f5469eb2beb198f6121f/6f1e5bdf78d09eae-7c/s75x75_c1/9a71915aa9ba5be7d344958ec78514f15fc93ee1.gifv">
  
