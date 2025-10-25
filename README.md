@@ -5,7 +5,7 @@ Hiii! My name is Crayon and I use any pronouns <3
 
 Usually at the roblox area with my friend, INT unless if me or my friends have ``DNI``` on our names, or are openly overwhelmed.
 
-I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest333) ♡<br/>The awesomest <a href="https://github.com/kawaiirazorblades" target="_blank">pookie</a> ever ^_^^<br/>
+I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest333) ♡<br/>The awesomest <a href="https://github.com/S0APSY" target="_blank">pookie</a> ever ^_^^<br/>
 · · ─────── ·✦· ─────── · ·
 
 ~ <ins>Best viewed on computer but still readable on mobile ig</ins>
