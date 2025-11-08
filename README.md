@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Libertinus+Serif&size=30&duration=4000&pause=1000&color=E1B333&center=false&vCenter=false&width=435&lines=Come+from+way+above;To+bring+me+love++%E2%81%A0%E2%99%A1)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Libertinus+Serif&size=30l&duration=4000&pause=1000&color=E1B333&center=false&vCenter=false&width=435&lines=Come+from+way+above;To+bring+me+love++%E2%81%A0%E2%99%A1)](https://git.io/typing-svg)
  <img align="left" width="40%" src="https://64.media.tumblr.com/cd327c28dcf70e4a2e3cc6ce52dc956e/6f43c62ae0a5e7ad-09/s540x810/38fca3a9352b660568a7f26f3e8bfbc2e71ff1e8.pnj">
 
 Hiii! My name is Crayon and I use any pronouns <3
@@ -18,12 +18,12 @@ I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest33
 
 <details>
 <summary>About me ! ⚔︎ </summary>
-My name is Crayon, but for closer friends you can call me Mari if you want !<br/> I´m non binary and use any pronouns.(but with male preference!), bi, ace and taken by my beautiful wife <3 <br/>English is not my first language so I apologize for any grammatical errors, I'm brazilian and my first language is Brazillian-Portuguese.<br/> I have autism, adhd, and some panic problems.<br/> I am a minor!!! Please dont flirt sexually or romantically.<br/>I´m learning italian and spanish!! :D<br/>i´m really interested in psychology, aliens, sci-fi, and much more :)
+My name is Crayon, but for closer friends you can call me Mari if you want!<br/> I´m non binary and use any pronouns.(but with male preference), bi, ace and taken by my beautiful wife <3 <br/>English is not my first language so I apologize for any grammatical errors, I'm brazilian and my first language is Brazillian-Portuguese.<br/> I have autism, adhd, and some panic problems.<br/> I am a minor!!! Please dont flirt sexually or romantically.<br/>I´m learning italian and spanish!! :D<br/>i´m really interested in psychology, aliens, sci-fi, and much more :)
 </details>
 
 <details>
 <summary>Byi ! ✸ </summary>
-Please just don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I can be very awkward if I don´t know you too well.<br/> I swear alot, I can be disrespectful at times but mostly joking with my friends. (I also use the F slur.)<br/> I use tonetags, please try using them around me as well.<br/> Sometimes I can be very energetic so sorry if I overwhelm you.<br/>Do not infantilize me.<br/>Please, avoid being too mean. All I ask for is respect.<br/> I am very autistic about my hyperfixations and special interests ^_^
+Please just don´t be weird.<br/>I´m a bit slow, so please be patient<br/> I can be very awkward if I don´t know you too well<br/> I swear alot, I can be disrespectful at times but mostly joking with my friends. (I also use the F slur)<br/> I use tonetags, please try using them around me as well<br/> Sometimes I can be very energetic so sorry if I overwhelm you!<br/>Do not infantilize me.<br/>Please, avoid being too mean, all I ask for is respect.<br/> I am very autistic about my hyperfixations and special interests ^_^
 </details>
 
 <img align="right" width="20%" src="https://tr.rbxcdn.com/30DAY-Avatar-B86CC710E8ECD3DEA65E5906FC56D1CE-Png/352/352/Avatar/Png/noFilter">
