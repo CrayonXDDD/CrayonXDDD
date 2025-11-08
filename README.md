@@ -5,7 +5,7 @@ Hiii! My name is Crayon and I use any pronouns <3
 
 Usually at the roblox area with my friend, INT unless if me or my friends have ``DNI``` on our names, or are openly overwhelmed.
 
-I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest333) ♡<br/>The awesomest <a href="https://github.com/S0APSY" target="_blank">pookie</a> ever ^_^^<br/>
+I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest333) ♡<br/>The awesomest <a href="https://github.com/kawaiirazorblades" target="_blank">pookie</a> ever ^_^^<br/>
 · · ─────── ·✦· ─────── · ·
 
 ~ <ins>Best viewed on computer but still readable on mobile ig</ins>
@@ -18,18 +18,18 @@ I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest33
 
 <details>
 <summary>About me ! ⚔︎ </summary>
-My name is Crayon, but for closer friends you can call me Mari if you want !<br/> I´m non binary and use any pronouns, bi, ace and taken by my beautiful wife <3 <br/>English is not my first language so I apologize for any grammatical errors, I'm brazilian and my first language is Brazillian-Portuguese.<br/> I have suspected autism, adhd, and some heart problems.<br/> I am a minor!!! Please dont flirt sexually or romantically.<br/>I´m learning italian and spanish!! :D<br/>i´m really interested in psychology, aliens, sci-fi, and much more :)
+My name is Crayon, but for closer friends you can call me Mari if you want !<br/> I´m non binary and use any pronouns.(but with male preference!), bi, ace and taken by my beautiful wife <3 <br/>English is not my first language so I apologize for any grammatical errors, I'm brazilian and my first language is Brazillian-Portuguese.<br/> I have autism, adhd, and some panic problems.<br/> I am a minor!!! Please dont flirt sexually or romantically.<br/>I´m learning italian and spanish!! :D<br/>i´m really interested in psychology, aliens, sci-fi, and much more :)
 </details>
 
 <details>
 <summary>Byi ! ✸ </summary>
-Please don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I can be very awkward if I don´t know you too well.<br/> I swear alot, I can be disrespectful at times but mostly joking with my friends. (I also use the F slur.)<br/> I use tonetags, please try using them around me as well.<br/> Sometimes I can be very energetic so sorry if I overwhelm you.<br/>Do not infantilize me.<br/>Please, avoid being too mean. All I ask is respect.<br/> I am very autistic about my hyperfixations and special interests.
+Please just don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I can be very awkward if I don´t know you too well.<br/> I swear alot, I can be disrespectful at times but mostly joking with my friends. (I also use the F slur.)<br/> I use tonetags, please try using them around me as well.<br/> Sometimes I can be very energetic so sorry if I overwhelm you.<br/>Do not infantilize me.<br/>Please, avoid being too mean. All I ask for is respect.<br/> I am very autistic about my hyperfixations and special interests ^_^
 </details>
 
 <img align="right" width="20%" src="https://tr.rbxcdn.com/30DAY-Avatar-B86CC710E8ECD3DEA65E5906FC56D1CE-Png/352/352/Avatar/Png/noFilter">
 
 <details>
-<summary>Dni ! ഒ </summary>
+<summary>Dni! ഒ </summary>
 <a href="https://basic-dni.crd.co/" target="_blank">Basic DNI criteria.</a> (If you tolerate or support any of it)<br/>Dream SMP fans (thin ice) and supporters, the coffin of andy and lesley, hazbin hotel and helluva boss, alfreds playhouse fans, and any kind of problematic media.<br/>Spawnism and anyone who endorses cults.<br/>I don´t rlly fw roleplay accounts.<br/>Pro/com/darkshippers or whatever you freaks call yourselves.<br/> Proships and ANY kind of ships if we aren´t close. 
 </details>
 
@@ -37,7 +37,7 @@ Please don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I can be
 
 <details>
 <summary>Interests ! ⏣ </summary>
-Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osomatsu-san, portal 1 and 2, amphibia, lego monkie kid, madoka magica, musicals, heathers´s, friday the 13th, scream, death note, osc, UTAU, inside job, mcyt, markiplier, 80´s songs, mpb, psychology, moths, guitars, my OC´s.
+Forsaken / roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osomatsu-san, portal 1 and 2, amphibia, lego monkie kid, madoka magica, musicals, heathers´s, friday the 13th, scream, death note, osc, UTMV, inside job, mcyt, danganronpa, 80´s songs, mpb, psychology, moths, guitars, my OC´s.
 </details>
 
 <details>
