@@ -23,14 +23,14 @@ My name is Crayon, but for closer friends you can call me Mari if you want!<br/>
 
 <details>
 <summary>Byi ! ✸ </summary>
-Please just don´t be weird.<br/>I´m a bit slow, so please be patient<br/> I can be kind of awkward in some situations<br/> I swear alot, I can be disrespectful at times but mostly joking with my friends (I also use the F slur)<br/> I use tonetags, please try using them around me as well<br/> Sometimes I can be very energetic so sorry if I overwhelm you!<br/>Do not infantilize me.<br/>Please, avoid being too mean, all I ask for is respect.<br/> I am very autistic about my hyperfixations and special interests ^_^
+Please just don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I can be kind of awkward in some situations.<br/> I swear alot, I can be disrespectful at times but mostly joking with my friends (I also use the F slur)<br/> I use tonetags, please try using them around me as well<br/> Sometimes I can be very energetic so sorry if I overwhelm you!<br/>Do not infantilize me.<br/>Please, avoid being too mean, all I ask for is respect.<br/> I am very autistic about my hyperfixations and special interests ^_^
 </details>
 
 <img align="right" width="20%" src="https://tr.rbxcdn.com/30DAY-Avatar-B86CC710E8ECD3DEA65E5906FC56D1CE-Png/352/352/Avatar/Png/noFilter">
 
 <details>
 <summary>Dni! ഒ </summary>
-<a href="https://basic-dni.crd.co/" target="_blank">Basic DNI criteria.</a> (If you tolerate or support any of it)<br/>Dream SMP fans (thin ice) and supporters, the coffin of andy and lesley, hazbin hotel and helluva boss, alfreds playhouse fans, and any kind of problematic media.<br/>Spawnism and anyone who endorses cults.<br/>I don´t rlly fw roleplay accounts.<br/>Pro/com/darkshippers or whatever you freaks call yourselves.<br/> Proships and ANY kind of ships if we aren´t close. 
+<a href="https://basic-dni.crd.co/" target="_blank">Basic DNI criteria.</a> (If you tolerate or support any of it)<br/>Dream SMP fans (thin ice) and supporters, the coffin of andy and lesley, hazbin hotel and helluva boss, alfreds playhouse fans, and any kind of problematic media.<br/>Spawnism and anyone who endorses and support any kind of cults.<br/>I don´t rlly fw roleplay accounts.<br/>Pro/com/darkshippers or whatever you freaks call yourselves.<br/> Proships and ANY kind of ships if we aren´t close. 
 </details>
 
 <img align="left" width="10%" src="https://64.media.tumblr.com/1db39c2fd2403a2117fba1a84822deb4/d698d816cb3e0c2e-01/s250x400/60475c663f68f15dcbd828ec49245952fa233fc7.gifv">
