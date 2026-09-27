@@ -19,7 +19,7 @@ I looove my beautiful partner [Viktor](https://pronouns.cc/@SacrilegiousPriest33
 
 <details>
 <summary>About me ! ⚔︎ </summary>
-My name is Crayon, but for closer friends you can call me Mari if you want!<br/> I´m non binary and use any pronouns.(but with he/they preference), bi, ace and taken by my beautiful wife <3 <br/>English is not my first language so I apologize for any grammatical errors, I'm brazilian and my first language is Brazillian-Portuguese.<br/> I have diagnosed autism, adhd, and some panic problems.<br/> I am a minor!!! Please dont flirt sexually or romantically.<br/>I´m learning italian and spanish!! :D<br/>  I´m really interested in psychology, aliens, sci-fi, and much more :)
+My name is Crayon, but for closer friends you can call me Mari if you want!<br/> I´m non binary and use any pronouns.(but with he/they preference), sapphic, ace and taken by my beautiful wife <3 <br/>English is not my first language so I apologize for any grammatical errors, I'm brazilian and my first language is Brazillian-Portuguese.<br/> I have diagnosed autism, adhd, and some panic problems.<br/> I am a minor!!! Please dont flirt sexually or romantically.<br/>I´m learning italian and spanish!! :D<br/>  I´m really interested in psychology, aliens, sci-fi, and much more :)
 </details>
 
 <details>
@@ -27,7 +27,7 @@ My name is Crayon, but for closer friends you can call me Mari if you want!<br/>
 Please just don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I can be kind of awkward in some situations.<br/> I swear alot, I can be disrespectful at times but mostly joking with my friends (I also use the F slur)<br/> I use tonetags, please try using them around me as well<br/> Sometimes I can be very energetic so sorry if I overwhelm you!<br/>Do not infantilize me.<br/>Please, avoid being too mean, all I ask for is respect.<br/> I am very autistic about my hyperfixations and special interests ^_^
 </details>
 
-<img align="right" width="20%" src="https://tr.rbxcdn.com/30DAY-Avatar-B86CC710E8ECD3DEA65E5906FC56D1CE-Png/352/352/Avatar/Png/noFilter">
+<img align="right" width="20%" src="https://static.wikia.nocookie.net/roblox/images/1/18/Shedletskymodern.webp/revision/latest/smart/width/250/height/250?cb=20260122220013">
 
 <details>
 <summary>Dni! ഒ </summary>
