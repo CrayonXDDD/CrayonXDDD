@@ -31,20 +31,20 @@ Please just don´t be weird.<br/>I´m a bit slow, so please be patient.<br/> I c
 
 <details>
 <summary>Dni! ഒ </summary>
-<a href="https://basic-dni.crd.co/" target="_blank">Basic DNI criteria.</a> (If you tolerate or support any of it)<br/>Dream SMP fans (thin ice) and supporters, the coffin of andy and lesley, hazbin hotel and helluva boss, alfreds playhouse fans, and any kind of problematic media.<br/>Spawnism and anyone who endorses and support any kind of cults.<br/>I don´t rlly fw roleplay accounts.<br/>Pro/com/darkshippers or whatever you freaks call yourselves.<br/> Proships and ANY kind of ships if we aren´t close. 
+<a href="https://basic-dni.crd.co/" target="_blank">Basic DNI criteria.</a> (If you tolerate or support any of it)<br/>Dream SMP fans (thin ice) and supporters, the coffin of andy and lesley, hazbin hotel and helluva boss, alfreds playhouse fans, and any kind of problematic media.<br/>Spawnism and anyone who endorses and support any kind of cults.<br/>I don´t rlly fw forsaken fans ❤️<br/>Pro/com/darkshippers or whatever you freaks call yourselves.<br/> Proships and ANY kind of ships if we aren´t close. 
 </details>
 
 <img align="left" width="10%" src="https://64.media.tumblr.com/1db39c2fd2403a2117fba1a84822deb4/d698d816cb3e0c2e-01/s250x400/60475c663f68f15dcbd828ec49245952fa233fc7.gifv">
 
 <details>
 <summary>Interests ! ⏣ </summary>
-Roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osomatsu-san, portal 1 and 2, amphibia, lego monkie kid, madoka magica, musicals, heathers´s, friday the 13th, scream, death note, osc, UTMV, inside job, mcyt, danganronpa, 80´s songs, mpb, psychology, moths, guitars, my Oc´s
+Roblox in general, <ins>Invader Zim</ins>, 8:11, chiikawa,<br/> osomatsu-san, portal 1 and 2, amphibia, lego monkie kid, madoka magica, musicals, heather's, friday the 13th, scream, death note, osc, UTMV, inside job, mcyt, danganronpa, 80´s songs, mpb, psychology, moths, guitars, my Oc´s
 </details>
 
 <details>
 <summary>Currently hyperfixated on...</summary>
 
-**SHEDLETSKY / TELAMON !! (all media)**<br/>and roblox games. (frskn, reg, bt, sewh, myths, admins, etc.)
+**SHEDLETSKY / TELAMON !! (all media)**<br/>and roblox games. (tror, sr, reg, bt, sewh, myths, admins, etc.)
 </details>
   
 · · ─────── ·✦· ─────── · ·
